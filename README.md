@@ -1,6 +1,6 @@
 # rghtstuff
-RightStuff tattoo machines is a company maker whose priority is our customers’ satisfaction, and thus the tattoo machines, that are the main part of our production, are the effect of experience of the experts from many fields.For those people, who have an idea of opening a tattoo studio, or whose tattoo business is growing and needs renovation or purchasing new tattooing equipment, it is important to have reliable accessories of high quality.What makes a professional tattoo artist? For sure, he should be a man of fine artistic taste and possess the vision of aesthetics. Also, a real professional should be a man of experience, have good skills in tattoo art and be able to satisfy the clients` needs. However, even the best tattoo artist won’t be able to release all his creative potential without high-quality tattoo equipment. High quality tattoo equipment from our store allows tattoo artist to work quicker and easier, and also help him to satisfy the most sophisticated clients` wishes.
-tattoo machinesSo, if you want your tattoo studio to provide high-quality service, make sure you work with professional tattoo artists and quality, reliable tattooing accessories.
+[RightStuff tattoo machines](https://rightstuff.eu) is a company maker whose priority is our customers’ satisfaction, and thus the tattoo machines, that are the main part of our production, are the effect of experience of the experts from many fields.For those people, who have an idea of opening a tattoo studio, or whose tattoo business is growing and needs renovation or purchasing new tattooing equipment, it is important to have reliable accessories of high quality.What makes a professional tattoo artist? For sure, he should be a man of fine artistic taste and possess the vision of aesthetics. Also, a real professional should be a man of experience, have good skills in tattoo art and be able to satisfy the clients` needs. However, even the best tattoo artist won’t be able to release all his creative potential without high-quality tattoo equipment. High quality tattoo equipment from our store allows tattoo artist to work quicker and easier, and also help him to satisfy the most sophisticated clients` wishes.
+[Tattoo machines](https://rightstuff.eu/product-category/tattoo-machines/) So, if you want your tattoo studio to provide high-quality service, make sure you work with professional tattoo artists and quality, reliable tattooing accessories.
 
 If you want to order quality tattooing equipment wholesale, the first thing you need to do is to find reliable people, who have a lot of experience in the tattoo industry and who will be able to deliver worldwide you the finest equipment, that will be suitable for your work.
 
@@ -19,8 +19,8 @@ The RightStuff store offers each one interested in saving money and getting excl
 
 Tattoo machines and parts for them;
 Tattoo Kits;
-Needles and inks;
-Power supplies;
+[Tattoo Needles](https://rightstuff.eu/product-category/needles/) and inks;
+[Power supplies](https://rightstuff.eu/product-category/tattoo-machines/power-supply/);
 General and medical supplies;
 Products for needles’ sterilization;
 Aftercare products;
